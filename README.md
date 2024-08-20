@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... criar sites sobre coisas sobrenaturais
 - 💞️ I’m looking to collaborate on ... cristianismo
 - 📫 How to reach me ... rapido
-- 😄 Pronouns: ... Ernok
+- 😄 Pronouns: ... Erick
 - ⚡ Fun fact: ... sei de coisas que ninguém sabe
 
 <!---
